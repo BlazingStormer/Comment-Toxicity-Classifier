@@ -54,6 +54,6 @@ I would like to express my gratitude to the open-source community and contributo
 
 ## Contact
 
-For questions, suggestions, or collaboration opportunities, please contact us at your-email@example.com.
+For questions, suggestions, or collaboration opportunities, please contact me at swamisai77@gmail.com.
 
 
